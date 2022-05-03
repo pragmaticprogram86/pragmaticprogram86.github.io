@@ -12,7 +12,7 @@ od 2018
 **TVM TRANSPORT**\
 2016-2018
 
-**Poczta Polska Dyspozotor Centrum Logistyki Oddział w Katowicach**\
+**Poczta Polska Dyspozytor Centrum Logistyki Oddział w Katowicach**\
 2012-2016
 
 **Poczta Polska Kierowca do 3,5T**\
