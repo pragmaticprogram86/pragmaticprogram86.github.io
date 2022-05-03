@@ -1,14 +1,19 @@
 ## Kamil Gierzkiewicz
 
 
-##Doświadczenie
-**MVT - CEO**
+## Doświadczenie
+
+**MVT - CEO**\
 od 2018
-**Seventeens**
+
+**Seventeens**\
 od 2018 
-**TVM TRANSPORT**
+
+**TVM TRANSPORT**\
 2016-2018
-**Poczta Polska Dyspozotor Centrum Logistyki Oddział w Katowicach**
+
+**Poczta Polska Dyspozotor Centrum Logistyki Oddział w Katowicach**\
 2012-2016
-**Poczta Polska Kierowca do 3,5T**
+
+**Poczta Polska Kierowca do 3,5T**\
 2007-2012
