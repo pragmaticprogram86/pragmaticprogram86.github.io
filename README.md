@@ -4,10 +4,10 @@
 ## Doświadczenie
 
 **MVT - CEO**\
-od 2018
+od 2018 - nadal
 
 **Seventeens**\
-od 2018 
+2018 
 
 **TVM TRANSPORT**\
 2016-2018
